@@ -23,3 +23,17 @@ Gentleness
 * 1 Pet 3vv13-16. Evangalising with *gentleness* and *respect*.
 * Why? (so they know we are different, see that God is powerfully at work in our attitudes and thinkings), How? Only do things that our conscience.
 * How does this go down with the non-Christians. Be real init. **STEVE TO COME WITH EXAMPLE**
+
+Self-Control
+------------
+
+### Prov 16v32, 25v28
+
+* Wisdom literature: How to be wise.
+* Why is self-control so esteemed in the Bible, particulary in wisdom literature
+
+### Titus 2vv11-14
+
+* What is the unusual link here.
+* God's grace in Jesus and self control.
+* **Explore this a lot;** if there is time I think it is really interesting.
